@@ -1,2 +1,2 @@
 # hello-world-
-short description
+Hi this is wahed khan student of mc daniel college.
